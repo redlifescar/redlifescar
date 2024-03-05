@@ -1,2 +1,10 @@
 <p align="center">
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/90a9b7fe-bf9f-4057-b242-fc73fdd68f88/ddm1qdg-c06bb1fd-ddbd-4908-9718-00331e79fd66.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzkwYTliN2ZlLWJmOWYtNDA1Ny1iMjQyLWZjNzNmZGQ2OGY4OFwvZGRtMXFkZy1jMDZiYjFmZC1kZGJkLTQ5MDgtOTcxOC0wMDMzMWU3OWZkNjYucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.19l6mRmYqMq_kdmWHxDwI3NcrQVZr5vI637Ud-ICjag">
+<br><br>
+MIRE / ROT / CEL 🩸 HE / DECAY / HOAX
+<br>
+AGES WITH THE BODY (18+) 🪓 USES A TYPING QUIRK (U = V / S = Z)
+<br>
+SYSTEM MEMORY & MANIA HOLDER 🧨 INTERACT WITH EXTREME CAUTION, SPORADIC MANNERISMS
+<br><br>
+<sub>pixel (c) panicpuppy</sub>
